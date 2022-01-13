@@ -1,6 +1,4 @@
 Osvaldo Donizete Turatto Junior 
-Rua Irati, 318 – São José dos Pinhais – PR – 83010-160 • (41)99887-3233 • junior_turatto@hotmail.com
-• Disponível para mensagens ou ligações via WhatsApp.
 
   Objetivo
 Técnico qualificado disponível em busca de uma vaga na área de TI para continuar a busca em  aprendizagem na área e profissionalmente e assim crescer ainda mais. Familiarizado com  informática durante 8 anos assim tendo experiência autônoma e espero ajudar empresas de acordo com que for pedido e necessário sempre em busca em proporcionar um ambiente produtivo e desenvolvido.
